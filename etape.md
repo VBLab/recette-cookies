@@ -5,3 +5,5 @@ Faire chauffer le four
 mélanger le tout
 
 Bon appétit !!!
+
+Dresser un plat avec les cookies réalisés.
